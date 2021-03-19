@@ -1,3 +1,4 @@
 # Demo
 
-Some dsciptions in mind!
+Some descriptions in mind!
+not expressible verbally.
